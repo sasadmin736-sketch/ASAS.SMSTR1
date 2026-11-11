@@ -1,0 +1,1 @@
+# ASAS.SMSTR1
